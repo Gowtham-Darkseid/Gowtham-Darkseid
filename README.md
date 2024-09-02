@@ -1,5 +1,5 @@
 
-![mylivewallpapers-com-Tunnel-Drift-FHD](https://github.com/user-attachments/assets/71f2712b-379b-4704-9506-23b567f69926)
+![Record Not Funny GIF - Record Rec Not Funny - Descubre y comparte GIF](https://github.com/user-attachments/assets/cc7a5b74-4672-48c0-902b-b428c0caf35c)
 
 
 # 💫 About Me:

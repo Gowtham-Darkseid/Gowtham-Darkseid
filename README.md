@@ -1,5 +1,6 @@
 
-![7he R4](https://github.com/user-attachments/assets/81e2416a-5086-4d89-a90a-7bc2e7b991e1)
+![7he R4 (1)](https://github.com/user-attachments/assets/81ab113f-1afc-4afc-82aa-22fcaf19ff20)
+
 
 
 # 💫 About Me:

@@ -1,6 +1,6 @@
 
-![Record Not Funny GIF - Record Rec Not Funny - Descubre y comparte GIF](https://github.com/user-attachments/assets/cc7a5b74-4672-48c0-902b-b428c0caf35c)
 
+![210012254-234538ff-d198-48aa-8964-37e6fd45d227](https://github.com/user-attachments/assets/b08bd47f-1e29-484f-8255-6ea07cc8f527)
 
 # 💫 About Me:
 👋 Hi, I'm Gowtham!<br><br>🎓 Passionate about tech, especially **web development**, **machine learning**, and **Linux**.<br><br>💻 Currently working on a **live streaming site** and a **documentary series**.<br><br>🌱 Always learning and experimenting with new ideas.<br><br>📫 Reach out at [graj200026@gmail.com] or explore my projects on GitHub!<br>
